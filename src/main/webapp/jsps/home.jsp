@@ -13,7 +13,8 @@
 <h1 align="center">Landmark Software Solutions (LSS)  are developing and supporting quality Software Solutions to millions of clients globally.
 	           We are raising billionaires IT professionals accross the nations of the World.
 	Landmark Software Solutions (LSS) offers Training for DevOps with Linux, Kubernetes and Cloud, equipping IT Engineers for best performance.
-        Landmark Technologies, the Pride of Africa.
+        Landmark Technologies, the Pride of Africa. ALMIGHTY GOD GIVES ME MORE WISDOM AND KNOWLEDGE AND GOOD HEALTH AND WEALTH AND LONG LIFE 
+	TO REMAIN ON TOP. ABUNDANT BLESSINGS
 	Class39 DevOps MasterClass started on Feb 8, 2025.
 	By God's grace i shall be employed Devop Senior Engineer before graduating in June 2025
         Class40 DevOps MasterClass will start on June 8, 2025. Engineer, Accountant, Estate Surveyor and Valuer, Tax Practioneer Kazeem Ajo 
