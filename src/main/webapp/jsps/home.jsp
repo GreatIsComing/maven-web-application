@@ -18,7 +18,7 @@
 	Class39 DevOps MasterClass started on Feb 8, 2025. GOD IS GOOD ALL THE TIME
 	By God's grace i shall be employed Devop Senior Engineer before graduating in June 2025
         Class40 DevOps MasterClass will start on June 8, 2025. Engineer, Accountant, Estate Surveyor and Valuer, Tax Practioneer Kazeem Ajo 
-        Please invite all your contacts and friends for this life changing course. JOY IS HERE, BLESSING IS HERE
+        Please invite all your contacts and friends for this life changing course. JOY IS HERE, BLESSING IS HERE. SUCCESS IS SURE!!
 </h1>
 <hr>
 <br>
